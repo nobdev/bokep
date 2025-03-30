@@ -1,7 +1,7 @@
 # bokep
 Bokep viral indo
-https://bokepbang.xyz/category/bokep-random/
+https://toketbagus.com/tag/bokep-viral
 
-https://bokepbang.xyz/category/bokep-viral/
+https://toketbagus.com/tag/guru-viral
 
-https://bokepbang.xyz/category/bokep-jilbab/
+https://toketbagus.com/category/random
